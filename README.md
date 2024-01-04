@@ -1,2 +1,1 @@
-# Pruthwik.github.io
-Pruthwik.github.io
+# Pruthwik Mishra
